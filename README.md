@@ -1,0 +1,3 @@
+This OER was created with a view to the more efficient implementation of the objectives of the module "THE FAMILY AND THE SOCIAL ENVIRONMENT", which is the understanding of the importance of the family and the acquaintance with the physiognomy of the modern Greek family (rural and urban). It is a powerful tool for improving the quality of education, as it provides free and easy access to educational material for all, regardless of their economic status and geographical location, and achieves the elimination of inequalities and equal access to knowledge for all. At the same time, it encourages the promotion of innovation in the education sector aimed at creating an effective education system for all.
+
+Translated with DeepL.com (free version)
